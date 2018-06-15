@@ -1,1 +1,1 @@
-Visit our website at [ccb.cash](http://ccb.cash/)
+Website and more info coming soon.
